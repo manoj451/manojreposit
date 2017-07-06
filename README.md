@@ -1,4 +1,2 @@
 # manojreposit
-hello hasiabkjdhc
-u r wrong
-udfcyuwscji
+hello hasiabk
